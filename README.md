@@ -15,4 +15,4 @@
 无需注册，极速播放，高清画质，零广告干扰，带来流畅舒适的观影体验。满足不同用户的观看需求，随时随地轻松访问。
 立即进入，尽情畅游高质量日本AV世界！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff20250707/ff07 ）</span>
